@@ -1,6 +1,6 @@
 # "mostmodernist"  
 
-before johnny begat mostmodernist dot com, a website which is now controlled by a squatter bot, and which annointed his career in wev development, he printed and distributed these pages of rhetoric and fiction.  Altho the word mostmodernist was not used in the print, it was the name by which he referred to it.  He wanted to print a magazine, ended up with a metablog.  
+Circa 2007-8,  before johnny begat mostmodernist dot com, a website which is now controlled by a squatter bot, and which annointed his career in wev development, he printed and distributed these pages of rhetoric and fiction.  Altho the word mostmodernist was not used in the print, it was the name by which he referred to it.  He wanted to print a magazine, ended up with a metablog.  
 
 Two-thousand copies of the pages were printed as a very large broadform newsprint, folded once.  The pdfs here are very large.  You can zoom in many many.
 
