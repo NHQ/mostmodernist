@@ -1,6 +1,8 @@
 # "mostmodernist"  
 
-before johnny begat mostmodernist dot com, a website which is now controlled by a squatter bot, and which annointed his career in wev development, he printed and distributed these pages of rhetoric and fiction.  Altho the word mostmodernist was not used in the print, it was the name by which he referred.  Two-thousand copies were printed as a large broadform newsprint.  The pdfs here are very large.  You can zoom in many many.
+before johnny begat mostmodernist dot com, a website which is now controlled by a squatter bot, and which annointed his career in wev development, he printed and distributed these pages of rhetoric and fiction.  Altho the word mostmodernist was not used in the print, it was the name by which he referred to it.  He wanted to print a magazine, ended up with a metablog.  
+
+Two-thousand copies of the pages were printed as a very large broadform newsprint, folded once.  The pdfs here are very large.  You can zoom in many many.
 
 All content composed and written by johnny, except the following: 
 The "Barmies" insert on page two was taken from the short stories of Donald Barthelme.
